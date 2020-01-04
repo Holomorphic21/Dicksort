@@ -1,2 +1,2 @@
 # dicksort
-determine and create lewd sentences.
+determine and create hentai pics.
