@@ -1,2 +1,2 @@
-# dicksort
-determine and create hentai pics.
+# Dicksort
+Determine and create hentai pics.
